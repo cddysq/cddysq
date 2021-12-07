@@ -4,6 +4,6 @@
 
 ### Hi there 👋
 
-I'm [成都第一深情](https://blog.yileaf.com), a salted fish 🐟.
+I'm the [most affectionate person in Chengdu](https://blog.yileaf.com), and I'm also a salted fish 🐟.
 
 - To be continued ...
